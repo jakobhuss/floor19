@@ -1,0 +1,300 @@
+#ME Floor 2019
+
+5. Start på knä börja böja sig
+6.
+7.
+8.
+
+1. Svep iväg vänster
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Drag med arm
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Drag i axel
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Stå i handstående
+2.
+3.
+4. Sänning påbörjas
+5.
+6. Stå i stödvåg
+7. På marken
+8. Framfäll
+
+## Tempoväxling i musiken
+
+1. Bakrull ?
+2.
+3.
+4.
+5.
+6.
+7.
+8. 
+
+1. Grenhopp !
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Öppning bakåt Höger
+2. Vänster
+3. Höger
+4. Vänster
+5. Höger + armar fram
+6. Vänster + armar stäng
+7. Öppna armar (upp / ned)
+8.
+
+1. Påbörja svep uppåt
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Första steget i Rondat 360
+2.
+3.
+4.
+5. Stämm
+6. Landa
+7. Steg
+8. Ihop ?
+
+## Lilla parövningen
+
+1. Steg mot varandara ? Armar ned?
+2. Person 1: Kliv, Person 2: Knä
+3. Person 1: Vrid, Person 2: Lyft
+4. Person 1: Flyg, Person 2: Lyft
+5. Person 1: Stanna vrid, Person 2: Vird och kliv upp
+6.
+7.
+8.
+
+1. Hopp och svep innåt
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Person 1: Stiger, Person 2: Påbörjar armar vid sida
+2. Påbörja kram
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. ????
+2.
+3. Öppna armar i hälsning
+4.
+5.
+6.
+7.
+8.
+
+1. Gruppelement
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+## Break musik
+
+1. Dunk i marken
+2.
+3.
+4. Flyga i hoppet
+5.
+6.
+7.
+8.
+
+1. ???
+2.
+3. Händer på axlar, Litet steg på höger
+4.
+5.
+6.
+7.
+8.
+
+1. Steg bak
+2. Steg ihop och vrid
+3.
+4.
+5. Balans
+6.
+7.
+8.
+
+1. Står i balans
+2.
+3.
+4.
+5. Hopp?
+6. Hopp?
+7.
+8.
+
+1. Steg ut / Steg över
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Flyga. Armar upp / ned
+2.
+3.
+4.
+5.
+6.
+7. Armar bak för armbågsstående
+8.
+
+1. Hopp upp armbågsstående
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Sitta på knä ?
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Hoppskruv
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Första steg i rondat
+2.
+3.
+4.
+5. Stämm
+6. Landa
+7. Steg
+8. Ihop
+
+1. Steg mot mitten ????
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Öppna utåt i cirkeln
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Steg efterlååångt drag ??
+2.
+3. Kullerbytta Alla
+4.
+5.
+6.
+7.
+8.
+
+1. Sidvridning
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. ?????
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Baksteg efter svepningar
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Steg efter pendling med arm och ben
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+1. Armar upp
+2. Sänk
+3. Sänk
+4. Sänk
+5. Ligg
+6. Ligg
+7. Ligg
+8. Ligg
